@@ -1,3 +1,4 @@
+TLDR: My dad sucks!
 ### Intro
 If I ever need to rant more i'll most likely add it here. i just need a safe place to rant that i can easily access.
 
